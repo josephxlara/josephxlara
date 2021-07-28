@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @josephxlara
-- 👀 I’m interested in creating and deploying web applications!
-- 🌱 I’m currently learning C++!
-- 💞️ I’m looking to collaborate on anything related to programming!
-- 📫 How to reach me... josephlara905@gmail.com!
+I read a lot! And I want to do cool things. Thanks!
