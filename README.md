@@ -1,1 +1,1 @@
-I read a lot! And I want to do cool things. Thanks!
+Welcome! Please contact me at josephlara905@gmail.com if you have any questions.
